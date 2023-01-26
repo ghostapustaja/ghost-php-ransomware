@@ -1,1 +1,1 @@
-educational shit only :)
+educational purpose only :)
